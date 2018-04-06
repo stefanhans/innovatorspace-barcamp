@@ -1,4 +1,5 @@
-## Innovator Space Schnupper-Barcamp
+## Innovator Space <br> Schnupper-Barcamp
 
-Digitalisierung und Innovation
+Digitalisierung und Innovation <br>
+
 
